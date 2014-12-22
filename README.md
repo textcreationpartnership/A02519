@@ -35,9 +35,23 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The character of man laid forth in a sermon preach't at the court, March, 1⁰. 1634. By the L. Bishop
+VERA EFFIGIES REVERENDI DONI•OSEPHI HALL NORWICI EPISCOPI.This Picture represents the Forme, where d
+1. TO
+THE RIGHT
+HONOURABLE
+and my ever most worthily
+honoured Lord;
+EDWARD,
+LORD DENNY,
+Baron of WALTHAM,
+Earle of Norwich.
+
 #####Body#####
-The character of man laid forth in a sermon preach't at the court, March, 1⁰. 1634. By the L. Bishop
+
+1. THE
+CHARACTER
+OF MAN.
+
 **Types of content**
 
   * There are 6 **verse** lines!
